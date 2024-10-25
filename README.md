@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Sanjaielango30
-- 👀 I’m interested in learning,knowing business
-- 🌱 I’m currently learning my ug
+- 👀 I’m interested in data analystic
+- 🌱 I’m currently learning my ug in infoemation technology
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me mail me here sanjaidharshan35@gmail.com
+- 📫 Mail me here sanjaidharshan35@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
